@@ -1,2 +1,0 @@
-# pondering
-Pondering Orb
